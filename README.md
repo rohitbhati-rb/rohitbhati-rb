@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rohitbhati8833@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1BWGPvYnmIf1U8KwLvsFcXeP4_XzK36br/view](https://drive.google.com/file/d/1BWGPvYnmIf1U8KwLvsFcXeP4_XzK36br/view)
+- 📄 Know about my experiences [My Resume](https://bit.ly/39Yelrh)
 
 - ⚡ Fun fact **I am also a chess player ♟♟♟**
 
