@@ -5,11 +5,11 @@
 
 - 🌱 I’m currently learning **Full Stack Software Development**
 
-- 💬 Ask me about **c/c++, data structures and algorithms, full stack development**
+- 💬 Ask me about **C/C++, JS/TS, Python, Java, DSA, full stack development**
 
 - 📫 How to reach me **rohitbhati8833@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/39Yelrh](https://drive.google.com/file/d/1BWGPvYnmIf1U8KwLvsFcXeP4_XzK36br/view)
+- 📄 Know about my experiences [My Resume](https://bit.ly/39Yelrh)
 
 - ⚡ Fun fact **I am also a chess player ♟♟♟**
 
